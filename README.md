@@ -1,4 +1,4 @@
-## BOA VINDA AO MEU PERFIl 👋
+## BEM VINDO(A) AO MEU PERFIl 👋
 
 Meu nome é Sara Tauany
 
